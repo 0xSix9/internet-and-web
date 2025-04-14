@@ -1,2 +1,2 @@
 ##Internet and Web
-image/file:///C:/Users/0xSix9/AppData/Local/Temp/Rar$EXa9152.833/500004969.jpg
+image/![image](https://github.com/user-attachments/assets/945e190b-804f-4e55-854b-8c7468b59e10)
